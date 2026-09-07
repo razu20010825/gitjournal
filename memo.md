@@ -7,3 +7,4 @@ https://play.google.com/store/apps/details?id=io.wallpaperengine.weclient
 ホワイトボード買って目標書く
 Xiaomiタグ無音化
 わからんことはその時聞く
+9月8日15時からびっくりドンキー
